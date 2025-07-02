@@ -5,7 +5,10 @@
 
 
 
-Video Entrega 2: [https://youtu.be/WWoxz39SdTQ](https://youtu.be/WWoxz39SdTQ)
+## Video Entrega 2: [https://youtu.be/WWoxz39SdTQ](https://youtu.be/WWoxz39SdTQ)
+
+## Video Entrega Final: [https://youtu.be/xMcldAyFHys](https://youtu.be/xMcldAyFHys)
+
 
 
 
